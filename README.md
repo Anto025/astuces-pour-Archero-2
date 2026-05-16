@@ -45,4 +45,4 @@
 
 <p>Alors, qu'attendez-vous ? Accédez dès maintenant au générateur de ressources illimitées pour Archero 2 et transformez votre gameplay en une expérience vraiment épique !</p>
 
-## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES ARCHERO 2](https://tinyurl.com/anto025fr) 🫵🫵
+## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES ARCHERO 2](https://shr.pn/Anto025) 🫵🫵
